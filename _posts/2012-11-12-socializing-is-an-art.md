@@ -1,0 +1,20 @@
+---
+id: 1185
+title: Socializing is an Art
+date: 2012-11-12T08:26:00+00:00
+author: admin
+layout: post
+guid: http://aquatours.net/?p=1185
+permalink: /2012/11/12/socializing-is-an-art/
+categories:
+  - General
+---
+There are a few things in life that appear simple upon first glance, when in reality turn out to be anything but that. Without question there is a art to socializing. Quite often for some of us we walk a fine line between social brilliance, and one step away from social disaster. Most of us learn crucial communication skills just after we learn to talk. At impressionable ages of our childhood we were experiencing our first lessons with social interactions. We quickly learned by the reactions of others around us whether they be playmate or parent, how to converse. We were taught manners by our parents, and soon learned to respect and be courteous in the class room by raising our hands. Elementary school helped us establish these core ingredients, and only they improved with age. Others tend to blossom later in life which is perfectly fine as long as it&#8217;s not too late in life.
+
+Depending on your life experiences, it can often speak volumes in how you socialize with others. If you were known as the quiet shy person growing up, you can unconsciously carry that with you through life. Entering a new job is daunting for many of us, but to a quieter individual it can become an ordeal. How does one break out of their shell and let their personality show without feeling insecure? We all have to take risks now and again as it&#8217;s part of life. No one ever said life was easy, and anyone that does isn&#8217;t being honest. For some people it&#8217;s a struggle to socialize with others on a daily basis.
+
+Think about all the places you are forced to make small talk and manage to get through it. Waiting rooms, grocery store line ups, wedding receptions, church etc. You get the idea. It&#8217;s these kind of settings where you don&#8217;t really know the people but you need to be polite. Draw back on some of these moments you&#8217;ve had and notice that you got through it. No it probably wasn&#8217;t enjoyable, but the other person likely appreciated your friendliness. Remember they are in the same kind of social setting you are in and you really don&#8217;t know what is in their thoughts either.
+
+Now one very important tip to remember when you have some time to spend with a complete stranger is learning to read people. Look carefully at the persons body language. Do they appear agitated and frustrated or calm and serene. If they&#8217;re facial impressions read to you &#8220;approachable&#8221; than smile and say hello. Smiling is one of the most important socializing ice breakers out there. First impressions are very important and you can start off on the right foot by making the other individual feel comfortable. When we give off a warm greeting others will naturally respond in kind towards us.
+
+Lastly I would encourage you to take with you on your flight something to keep your mind occupied. Reading material is most popular as it helps pass the time quickly. If you are traveling for business take your lap top along with you and catch up on the stack of emails waiting your attention. Do not plan on spending your flight revealing you life story. A safe topic is generally chatting about the line of work that you are in. It&#8217;s also polite to ask the other person where they are heading. With all the international airports it&#8217;s possible the person sitting next to you has traveled to some interesting destinations. Why not find out? The average person goes through life meeting approximately 10,000 people. Just think what a pro you&#8217;ll become the more you meet along life&#8217;s way. There are a lot of wonderful people out in the world that we have the opportunity to meet. Look at your next flight as a moment to either make it a tolerable trip or a great trip. It is really up to you.
